@@ -8,8 +8,8 @@ Meu nome é Maria Viória
 
 ### Você entrar em contato comigo 📫
 
-vitoriamaria@gamil.com
+m.felisbino@escola.pr.gov.br
 
-@mariavitoria
+@wz.m4vi
 
 ![](https://media.tenor.com/57mc9TmwqWEAAAAj/corinthians.gif)
